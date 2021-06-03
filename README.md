@@ -8,6 +8,11 @@ and at This **LED PROJECT** I Would mess all my Contribution Stats, and thats no
 
 Maybe we continue this other year haha
 
+
+
+
+
+
 Ps:Now closing this I realized that would be nice to write which songs I was listenning to while doing the Projects, to have another Human Detail on, idk... why not? haha
 
 Ps2: CLosing this Project Listenning "The Weeknd - Blinding Lights (Live On The 2020 MTV VMAs)" 😳🤝😎👍
